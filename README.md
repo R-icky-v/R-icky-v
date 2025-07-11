@@ -2,7 +2,7 @@
 
 Mi apodo es "Ricky" 😉
 
-🚀 Sobre mí
+-🚀 Sobre mí
 
   🎓 Carrera: Ingeniería de Sistemas
   
@@ -14,15 +14,15 @@ Mi apodo es "Ricky" 😉
   
 
 
-🚀🔧 Proyectos 🔧🚀
+-🚀🔧 Proyectos 🔧🚀
 
-📝 RePrint Academy
+  📝 RePrint Academy
+  
+  📺 TV‑E
 
-📺 TV‑E
+  🖤 E‑GOD
 
-🖤 E‑GOD
-
-🛍️ One Touch
+  🛍️ One Touch
 
 
 Isaías 41:10 dice:
